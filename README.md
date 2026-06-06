@@ -4,7 +4,17 @@
 <img height="600" width="600" src= "https://media.discordapp.net/attachments/1219041561363353761/1512665376884920450/descarga_18.png?ex=6a24eae9&is=6a239969&hm=b9fca1f1e40be20a0c82c4b9dab8e7925038b078565d005b08eed6d6541011c4&=&format=webp&quality=lossless"> 
 
 <p align="center">
-$\large\textcolor{#6e8c86}{\textsf{𝜗𝒞 ㅤ𝐄van ㅤ 𝐇e / 𝒉imㅤ✦ ㅤ::  ㅤ 𝐂 +  𝐇 }}$
+$\large\textcolor{#537f8e}{\textsf{𝜗𝒞 ㅤ𝐄van ㅤ 𝐇e / 𝒉imㅤ✦ ㅤ::  ㅤ 𝐂 +  𝐇 }}$
 
 <p align="center">
-  ✦⋅⋅⋯⋯⋅⋯⋅⋯ㅤ<a href="https://imaymadness2012.atabook.org/"><img src="https://readme-typing-svg.demolab.com?font=Segoe+Script&size=30&duration=1&pause=5000&color=6e8c86&center=true&vCenter=true&width=200&height=20&lines=Atabook!!" alt="Typing SVG" /></a> ㅤㅤ ㅤ ㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤ⋯⋅⋯⋅⋯⋅⋯✦
+  ✦⋅⋅⋯⋯⋅⋯⋅⋯ㅤ <a href="https://imaymadness2012.atabook.org/">Atabook</a>ㅤ $\large\textcolor{#537f8e}{\textsf{ 
+  ::ㅤ ✦ㅤ   :: }}$ㅤ <a href="https://dailyitrapped.straw.page/"">Strawpage</a> 
+ ㅤ ⋯⋅⋯⋅⋯⋅⋯✦
+
+ <p align="center">
+$\large\textcolor{#1c6e89}{\textsf{17 𝗒.ⱺㅤ╰୧﹒ㅤ♡ ㅤ𝐄s𝕗𝗉ㅤ〢ㅤ𝕊x2 }}$
+
+<p align="center">
+ ✦⋅⋯ $\large\textcolor{#0e3e6b}{\textsf{"You'll change your name, or change your mind
+And leave this fucked up place behind"}}$
+ ⋅⋯✦
